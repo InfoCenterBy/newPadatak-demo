@@ -1,1 +1,0 @@
-# newPadatak-demo
